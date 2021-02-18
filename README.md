@@ -1,0 +1,2 @@
+# XENZ
+XENZ coin
